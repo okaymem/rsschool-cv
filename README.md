@@ -1,2 +1,1 @@
-test
-text
+https://okaymem.github.io/rsschool-cv/cv
