@@ -15,4 +15,4 @@
   
 6. I have no work experience.
 7. General basic education.
-8. B1, Itook courses.   
+8. B1, I took courses.   
